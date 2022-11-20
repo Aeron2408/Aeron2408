@@ -1,0 +1,6 @@
+- hiiii
+- ako nlng kasi
+- spill konaba?
+- ih kahiya AHAHAHA
+- KUNG NAKIKITA MOTO 
+- walana nahiya nako 
